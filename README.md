@@ -21,6 +21,7 @@
 
 # ✧ ꒰১ ໒꒱  『 Tag i used on Pony Town 』  ꒰১ ໒꒱ ✧
 - ꒰১ ໒꒱✧  『 Free2Intreact/Int : Please feel free to come and speak with me.』 ✧ ꒰১ ໒꒱
+- ꒰১ ໒꒱✧  『 Free2C+H || Cuddle + Hiding : feel free to come and cuddle me. 』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 W2I || Whisper to interact : Please interact with me by whispering. 』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 DNI || Do Not Intreact : You can give me a cuds, but don't talk or do anything else. 』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 IWC || Intreact with caution : When I had this, you may still interact with me but should be careful since I may be saying something rude. 』 ✧ ꒰১ ໒꒱
