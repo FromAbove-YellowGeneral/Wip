@@ -21,3 +21,8 @@
 
 # ✧ ꒰১ ໒꒱  『 Tag i used on Pony Town 』  ꒰১ ໒꒱ ✧
 - ꒰১ ໒꒱✧  『 Free2Int/Int : Please feel free to come and speak with me.』 ✧ ꒰১ ໒꒱
+- 
+
+# ✧ ꒰১ ໒꒱  『 End of Introduction 』  ꒰১ ໒꒱ ✧
+![Image](https://github.com/user-attachments/assets/78d4b5d6-5adf-411b-95ab-563224069d0a)
+![Image](https://github.com/user-attachments/assets/5a79c446-a8a7-4307-81d6-adb2d3325004)
