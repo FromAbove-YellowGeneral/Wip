@@ -23,8 +23,9 @@
 - ꒰১ ໒꒱✧  『 Free2Intreact/Int : Please feel free to come and speak with me.』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 W2I || Whisper to interact : Please interact with me by whispering. 』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 DNI || Do Not Intreact : You can give me a cuds, but don't talk or do anything else. 』 ✧ ꒰১ ໒꒱
+- ꒰১ ໒꒱✧  『 IWC || Intreact with caution : When I had this, you may still interact with me but should be careful since I may be saying something rude. 』 ✧ ꒰১ ໒꒱
+- ꒰১ ໒꒱✧  『 IWEC || Intreact with extra caution : When I had this, you may still interact with me but should be careful since I may be saying something very rude. since I am not in the mood/drained. 』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 DNIUF || Do Not Intreact Unless friend : You can give me a cuds, but don't talk or do anything else. unless friend. friend still can intreact me freely 』 ✧ ꒰১ ໒꒱
-- ꒰১ ໒꒱✧  『  』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『  』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『  』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『  』 ✧ ꒰১ ໒꒱
