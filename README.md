@@ -20,8 +20,15 @@
 - ꒰১ ໒꒱✧  『 My mom already passed away, so don't joke about my mom, please. 』 ✧ ꒰১ ໒꒱
 
 # ✧ ꒰১ ໒꒱  『 Tag i used on Pony Town 』  ꒰১ ໒꒱ ✧
-- ꒰১ ໒꒱✧  『 Free2Int/Int : Please feel free to come and speak with me.』 ✧ ꒰১ ໒꒱
-- 
+- ꒰১ ໒꒱✧  『 Free2Intreact/Int : Please feel free to come and speak with me.』 ✧ ꒰১ ໒꒱
+- ꒰১ ໒꒱✧  『 W2I || Whisper to interact : Please interact with me by whispering. 』 ✧ ꒰১ ໒꒱
+- ꒰১ ໒꒱✧  『 DNI || Do Not Intreact : You can give me a cuds, but don't talk or do anything else. 』 ✧ ꒰১ ໒꒱
+- ꒰১ ໒꒱✧  『 DNIUF || Do Not Intreact Unless friend : You can give me a cuds, but don't talk or do anything else. unless friend. friend still can intreact me freely 』 ✧ ꒰১ ໒꒱
+- ꒰১ ໒꒱✧  『  』 ✧ ꒰১ ໒꒱
+- ꒰১ ໒꒱✧  『  』 ✧ ꒰১ ໒꒱
+- ꒰১ ໒꒱✧  『  』 ✧ ꒰১ ໒꒱
+- ꒰১ ໒꒱✧  『  』 ✧ ꒰১ ໒꒱
+- ꒰১ ໒꒱✧  『  』 ✧ ꒰১ ໒꒱
 
 # ✧ ꒰১ ໒꒱  『 End of Introduction 』  ꒰১ ໒꒱ ✧
 ![Image](https://github.com/user-attachments/assets/78d4b5d6-5adf-411b-95ab-563224069d0a)
