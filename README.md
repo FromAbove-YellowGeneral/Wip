@@ -29,5 +29,6 @@
 ![Image](https://github.com/user-attachments/assets/bf49efe6-b8d7-4cb9-a3e9-137cbb834223)
 ![Image](https://github.com/user-attachments/assets/b7ebb4d1-746b-4f13-9a58-e8d84e05ba91)
 
-Me to them : 
+Me to that type people : 
 ![Image](https://github.com/user-attachments/assets/e250c30e-8583-48b8-a88b-4bedaffc0992)
+![Image](https://github.com/user-attachments/assets/de08123b-46b1-4fbf-80d8-229381975e31)
