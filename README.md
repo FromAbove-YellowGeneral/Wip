@@ -27,10 +27,10 @@
 - ꒰১ ໒꒱✧  『 IWC || Intreact with caution : When I had this, you may still interact with me but should be careful since I may be saying something rude. 』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 IWEC || Intreact with extra caution : When I had this, you may still interact with me but should be careful since I may be saying something very rude. since I am not in the mood/drained. 』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 DNIUF || Do Not Intreact Unless friend : You can give me a cuds, but don't talk or do anything else. unless friend. friend still can intreact me freely 』 ✧ ꒰১ ໒꒱
-- ꒰১ ໒꒱✧  『  』 ✧ ꒰১ ໒꒱
-- ꒰১ ໒꒱✧  『  』 ✧ ꒰১ ໒꒱
-- ꒰১ ໒꒱✧  『  』 ✧ ꒰১ ໒꒱
-- ꒰১ ໒꒱✧  『  』 ✧ ꒰১ ໒꒱
+- ꒰১ ໒꒱✧  『 DNIUCF || Do Not Intreact Unless close friend : You can give me a cuds, but don't talk or do anything else. unless close friend. close friend still can intreact me freely 』 ✧ ꒰১ ໒꒱
+- ꒰১ ໒꒱✧  『 DNIUID || Do Not Intreact Unless I Do : You can give me a cuddle, but don't talk or do anything else. unless I do talk first 』 ✧ ꒰১ ໒꒱
+- ꒰১ ໒꒱✧  『 Offtab : It means I am not on Pony Town but on another app. 』 ✧ ꒰১ ໒꒱
+- ꒰১ ໒꒱✧  『 AFK || Away From Keyboard : It means I do something in real life. 』 ✧ ꒰১ ໒꒱
 
 # ✧ ꒰১ ໒꒱  『 End of Introduction 』  ꒰১ ໒꒱ ✧
 ![Image](https://github.com/user-attachments/assets/78d4b5d6-5adf-411b-95ab-563224069d0a)
