@@ -18,3 +18,6 @@
 - ꒰১ ໒꒱✧  『 My Discord : whisperselfwardswan_survivor 』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 Please interact with caution if you are 18+. 』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 My mom already passed away, so don't joke about my mom, please. 』 ✧ ꒰১ ໒꒱
+
+# ✧ ꒰১ ໒꒱  『 Tag i used on Pony Town 』  ꒰১ ໒꒱ ✧
+- ꒰১ ໒꒱✧  『 Free2Int/Int : Please feel free to come and speak with me.』 ✧ ꒰১ ໒꒱
