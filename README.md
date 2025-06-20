@@ -26,3 +26,8 @@
 # ✧ ꒰১ ໒꒱  『 End of Introduction 』  ꒰১ ໒꒱ ✧
 ![Image](https://github.com/user-attachments/assets/78d4b5d6-5adf-411b-95ab-563224069d0a)
 ![Image](https://github.com/user-attachments/assets/5a79c446-a8a7-4307-81d6-adb2d3325004)
+![Image](https://github.com/user-attachments/assets/bf49efe6-b8d7-4cb9-a3e9-137cbb834223)
+![Image](https://github.com/user-attachments/assets/b7ebb4d1-746b-4f13-9a58-e8d84e05ba91)
+
+Me to them : 
+
